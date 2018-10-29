@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome.
 #### 10
-#### 11 Im bored.
+#### 11 Im bored of SEP.
 #### 12
 #### 13
 #### 14
